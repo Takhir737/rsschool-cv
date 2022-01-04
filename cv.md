@@ -1,9 +1,9 @@
 # Takhir Mollaudov
 
 -------------------     ---------------------------------
+Kazakhastan             Almaty city
 2-nd Bratskaya h.15     email:stellarmollaudov@gmail.com
-City Almaty             Phone: +77071133979
-Country Kazakhstan      steam:Xnlynox
+Phone:+77071133979      steam:Xnlynox
 -------------------     ---------------------------------
 
 Education
